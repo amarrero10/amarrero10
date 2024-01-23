@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **albert.marrero10@gmail.com**
 
-- 📄 My Resume [Resume](https://docs.google.com/document/d/1hs4EUcQC2Ki3npJKCCwj43yyOj5s62qd/edit?usp=sharing&ouid=110756131260014420215&rtpof=true&sd=true)
+- 📄 My Resume [Resume](https://docs.google.com/document/d/1k-jmQpeFAp56JhafBL_13jfe56ISSz72iL9myMoJ6o8/edit)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
